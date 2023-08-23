@@ -1,2 +1,2 @@
 # knkoycuk.github.io
-Resmi kaan koycuk sitesi
+DİSS DİSCORD YÖNETİM
